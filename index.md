@@ -1,7 +1,7 @@
 # Genshin Impact Three most powerful Characters
 
 
-[Ganyu](https://angela7201.github.io/Gonzoa.github.io/)     [Klee](https://angela7201.github.io/-Gonzala3.github.io/)  [Klee](https://angela7201.github.io/Gonzaleza3.github.io/)
+[Ganyu](https://angela7201.github.io/Gonzoa.github.io/)     [Klee](https://angela7201.github.io/-Gonzala3.github.io/)  [Mia](https://angela7201.github.io/Gonzaleza3.github.io/)
 
 # Introduction
 

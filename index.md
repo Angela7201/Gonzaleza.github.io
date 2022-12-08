@@ -1,12 +1,13 @@
-# Genshin Fact's
+# Genshin Impact Three most powerful Characters
 
 
 [Characters](https://angela7201.github.io/Gonzoa.github.io/)     [Feedback](https://angela7201.github.io/-Gonzala3.github.io/)
 
+# Introduction
 
-Genshin Impact is an open-world action role-playing game developed and published by miHoYo. It was released for PC, PlayStation 4, Android, and iOS on September 28, 2020. The game features a fantasy world of Teyvat, where players will explore a vast world, solve puzzles, battle enemies, and use elemental abilities to progress. The game also features a gacha system, where players can obtain new characters and weapons through in-game currency or real money.
+Genshin Impact is an open-world action role-playing game developed and published by miHoYo. It was released for PC, PlayStation 4, Android, and iOS on September 28, 2020. The game features a fantasy world of Teyvat, where players will explore a vast world, solve puzzles, battle enemies, and use elemental abilities to progress. The game also features a gacha system, where players can obtain new characters and weapons through in-game currency or real money. The game features a massive, beautifully illustrated open world to explore, with a wide variety of characters, monsters, and items to collect. You can team up with other players to take on challenging co-op quests and explore the world together. During your journey, you will discover secrets, unlock hidden areas, and learn new fighting techniques. Genshin Impact allows you to experience an entirely different world full of adventure and mystery.
 
-The game features a massive, beautifully illustrated open world to explore, with a wide variety of characters, monsters, and items to collect. You can team up with other players to take on challenging co-op quests and explore the world together. During your journey, you will discover secrets, unlock hidden areas, and learn new fighting techniques. Genshin Impact allows you to experience an entirely different world full of adventure and mystery.
+# Other Facts
 
 1. Genshin Impact was released on September 28, 2020, and has achieved tremendous success with over 17 million downloads in its first week.
 

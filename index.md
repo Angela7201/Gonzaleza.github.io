@@ -1,7 +1,7 @@
 # Chinchilla Fact's
 
 
-[Cute photots](https://www.youtube.com/watch?v=if6WOqxdqtg)      [Other ish](https://twitter.com/dreamwastaken/status/1600613353210126337)
+[Cute photots](https://angela7201.github.io/Gonzoa.github.io/)     [Other ish](https://twitter.com/dreamwastaken/status/1600613353210126337)
 
 
 Chinchillas are small, adorable rodents belonging to the genus Chinchilla. They are native to the Andes mountains in South America, where they live in burrows and rocky crevices. Their dense fur and long tails help them survive in cold, windy climates. Chinchillas are popular pets due to their social and playful nature, as well as their unique appearance. They have large ears, big eyes, and a soft, plush fur coat. Chinchillas are also known for their intelligence – they can learn simple tricks and commands, and they can even be litter-box trained. Chinchillas require regular care to stay healthy, and they should be groomed regularly to keep their fur clean and free of tangles. With proper care and attention, chinchillas can live for up to 20 years!
